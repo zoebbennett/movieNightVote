@@ -1,2 +1,2 @@
 # movieNightVote
-by zoe
+by zoe and danika
